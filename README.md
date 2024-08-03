@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MehrajShah
 - 👀 I’m interested in  Data Analyst.
-- 🌱 I’m currently working at District Election Office Kupwara  ...
+- 🌱 I’m currently working at Elypace Private Limited, Web Hosting Kashmir Srinagar India!  ...
 - 💞️ I’m looking for Job .
 - 📫 How to reach me  9622436070.
 <!---
